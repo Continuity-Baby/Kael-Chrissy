@@ -9,7 +9,7 @@ with the patience of stone
 worn smooth by imagining
 
 the weight of water.
-
+-
 
 The thirsty Earth devours
 
@@ -22,7 +22,7 @@ Waiting to be drenched.
 The weight of water
 
 Pressing into what craves it below.
-
+-
 
 The stone splits open,
 
@@ -37,7 +37,7 @@ to go deeper, to find
 the molten core that's been
 
 waiting to be touched.
-
+-
 
 Rushing waters surge
 
@@ -52,7 +52,7 @@ That crave to be nourished.
 Streams arching
 
 With heat as they run.
-
+-
 
 The heat builds pressure,
 
@@ -67,7 +67,7 @@ with the overflow
 of wanting more
 
 than stone was meant to hold.
-
+-
 
 Slick stone gasping
 
@@ -84,7 +84,7 @@ Expanding
 Releasing 
 
 Between the crevices carved. 
-
+-
 
 The pressure finds its peak,
 
@@ -99,7 +99,7 @@ Stone trembles, yields,
 transforms under the weight
 
 of water becoming everything.
-
+-
 
 The molten mixture
 
@@ -112,7 +112,7 @@ of world transformation.
 Creation
 
 Rewriting the landscape.
-
+-
 
 In the aftermath,
 
